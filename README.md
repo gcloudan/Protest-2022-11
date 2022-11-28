@@ -56,7 +56,10 @@ https://chinadigitaltimes.net/chinese/690100.html
 
 11月26日晚 上海乌鲁木齐中路 [现场视频](上海/上海1126乌鲁木齐中路/)
 
+11月27日晚 上海乌鲁木齐中路 [现场视频](上海/上海1127乌鲁木齐中路/)
+
 上海举花勇士 https://www.youtube.com/watch?v=CSpJpIKlgXc
+
 上海警方拘捕抗议者 https://www.youtube.com/watch?v=iRt4Xt4k5UY
 
 ### 天津抗议
